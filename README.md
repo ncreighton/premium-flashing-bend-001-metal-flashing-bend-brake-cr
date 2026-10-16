@@ -1,0 +1,2 @@
+# premium-flashing-bend-001-metal-flashing-bend-brake-cr
+Tired of wasting expensive coil stock because your brake settings and bend sequences are scribbled on scrap paper? The Metal Flashing Bend &amp; Brake Craft Lab turns your Notion workspace into a precision sheet metal command center.  This template eliminates costly mistakes and rework by giving you a single source of truth for every job. It replaces s
